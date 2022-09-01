@@ -1,2 +1,2 @@
 # Paddy_Doctor
-[](https://i.imgur.com/iOtOBbx.jpg)
+[](https://i.imgur.com/wQveSRn.jpg)
